@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Machine learning and Data Analytics**
 
-- 📫 How to reach me **rcmanish27@gmail.com**
+- 📫 Reach me via **rcmanish27@gmail.com**
 
 - ⚡ Fun fact **Bikes and Cars...they OWN meeee..**
 
